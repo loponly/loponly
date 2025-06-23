@@ -25,7 +25,7 @@
 ## 📫 Let’s Connect!
 
 - 💼 [em4it.com](https://em4it.com)
-- 💼 [LinkedIn](#) ([add your URL](https://www.linkedin.com/in/enkhbat-enkhtaivan-63171556/))
+- 💼 [LinkedIn](https://www.linkedin.com/in/enkhbat-enkhtaivan-63171556/)
 
 ---
 
